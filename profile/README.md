@@ -45,6 +45,8 @@
 ## 公众号：
 
 直接使用协会的公众号：**ReDawn工作室**
+![image](https://github.com/ReDawn-Studio/.github/assets/91041842/ae7c4590-5d3c-4ba7-a9a2-01cc67a9a3dc)
+
 
 ## Bilibili：
 
